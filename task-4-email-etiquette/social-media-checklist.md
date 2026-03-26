@@ -1,1 +1,15 @@
- Responsible Social Media: The VITian’s Checklist✅ DO (The Essentials)❌ DON'T (The Risks)Audit Your Privacy: Regularly check your settings to ensure only friends see your private life.Post Academic Dishonesty: Never post photos of exam papers or "leaked" questions; it’s a major violation.Network on LinkedIn: Connect with alumni and industry leaders using a professional headshot.Over-Share Location: Avoid tagging your exact real-time location (like your hostel room) for safety.Think Before You Post: Ask yourself: "Would I be okay with a future employer seeing this?"Engage in "Flame Wars": Don't argue with trolls or post hateful comments; digital footprints are permanent.Fact-Check Information: Verify news or university notices before sharing them to avoid spreading rumors.Ignore Copyright: Don't use others' artwork, music, or code in your posts without giving proper credit.Enable 2FA: Protect your accounts from being hacked by using Multi-Factor Authentication.Post While Emotional: Avoid "venting" about faculty or peers online; it can lead to disciplinary action.
+ # Social Media Do’s and Don’ts for Students
+
+## ✅ Do’s
+- Maintain a professional and respectful profile  
+- Share useful and positive content  
+- Respect others' opinions online  
+- Use privacy settings to protect your data  
+- Verify information before sharing  
+
+## ❌ Don’ts
+- Don’t post offensive or inappropriate content  
+- Don’t share personal or sensitive information  
+- Don’t engage in cyberbullying  
+- Don’t spread fake news or misinformation  
+- Don’t waste excessive time on social media during studies 
